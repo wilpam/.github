@@ -5,6 +5,5 @@
 #### <div align="center">we are <i>wilpam erkithe eolesl<i>.</div>
 
 <br />
-<br />
 
 <div align="center"><sub>(you can just say wilpam, it's fine)</sub></div>
